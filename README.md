@@ -1,0 +1,7 @@
+Tomshawdev
+
+Operation planning to be farmed out
+
+Devroll/pay roll to be split out
+
+What are my aims?
